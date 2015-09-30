@@ -1,2 +1,2 @@
 # ClaretianoDPPWingresso2015
-Para o trabalho de pós graduação da Claretiano
+Quem colocar acento e cedilha nessa baga'ss'a vai pra cadeia.
